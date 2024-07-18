@@ -11,4 +11,5 @@ My skills right now include Java, Python, MySQL, advanced Excel, a bit of R, and
 You can reach me on my school email at - mahajan.169@buckeyemail.osu.edu or by email at playmahajan@gmail.com.
 
 Can't wait to learn more and have more projects under my belt! I'm looking forward to collaborating with you all!
+
 (Pronouns - he/him, go gays!)
